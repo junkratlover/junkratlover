@@ -9,14 +9,6 @@ uuuhh idm c+h most of the time :3 unless i wanna move ill probably boop u then r
 
 im not THAT good at talking but heh feel free to interact, ill probably conversate back most the time... rubs hands together
 
-my interests r utdr, tmnt, sonic, fnaf, overwatch, tlou, osc, and ok hinestly probably a lot more that arsnt comign to mjnd
-
-statuses
----
-online-- i dont use rhis
-idle-- i use this in place of online heh. also because yunno im afk a lot😕
-dnd-- either im jn a bad mood or just dont feel like talkinf 
-
-heh okay i ran out of ideas... fades away into mysterious fog (seriously how do u do these thingies)
+my interests r utdr, tmnt, sonic, fnaf, overwatch, tlou, osc, and ok hinestly probably a lot more that arsnt comign to mund
 
 
